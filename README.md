@@ -1,1 +1,0 @@
-# mattosys-logos
